@@ -1,7 +1,7 @@
 # Henlo There 
 Kano-Fie Here or u can call me Kano. Man who trying to learn about game stuff and web developer. Also a weeb
 
-![Megu❤](https://media.giphy.com/media/GcLLdwoMWd2A8/giphy.gif)
+![Yoimiyaaa❤](https://media.tenor.com/1maawU1NsgwAAAAd/yoimiya.gif)
 
 ## About me 😳
 
